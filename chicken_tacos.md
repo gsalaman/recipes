@@ -37,7 +37,7 @@ Move sauce to a blender, and process it until smooth.
 Return sauce to the pot.
 
 Shred the chicken, either with the 2 fork method or put it in the stand mixer with the paddle attachment.  Use a towel around the outside to keep gunk in.
-Add chicken back to the pot.  Cook over medium heat until sauce is thick and clings to chicken (10 min?)
+Add chicken back to the pot.  Simmer uncovered until sauce is thick and clings to chicken (10 min?)
 
 This is a good time to mince the cilantro and scallions, and shred the cheese.   And cube the avocado.
 
