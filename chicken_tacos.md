@@ -10,8 +10,8 @@ For the taco filling:
 * 1 teaspon cumin
 * 1/4 teaspoon cinnamon
 * 1 14.5 can fire roasted diced tomatos
-* 1 small can chipoltle peppers in adobo sause
-* 1/2 cup chicken broth
+* 1 small can chipoltle peppers in adobo sause - full 7 oz can for Glenn strenght.  Half can for "lighter".
+* 1 can chicken broth (14 oz)
 * 1/2 tsp brown sugar.
 * 1 lime
 
