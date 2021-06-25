@@ -30,7 +30,7 @@ Mince the chipolte peppers here.
 Add garlic, cumin, cinnamon, and cook until fragrant (1 min?)
 Add tomatos, broth, chipolte peppers and the sause, and brown sugar.  Bring to a boil.
 
-Put chicken back in the pot.  Reduce heat to medium low (I did 5).Cook until meat registers 195 (15-20 minutes).  Yes, this is higher than you need for thighs, but they say this really loosens the fibers.  Flip chicken after 5 minutes.
+Put chicken back in the pot.  Reduce heat to medium  (I did 6).Cook covered until meat registers 195 (15-20 minutes).  Yes, this is higher than you need for thighs, but they say this really loosens the fibers.  Flip chicken after 7 minutes, then every 5 minutes after that.
 
 Remove chicken to cutting board and let cool.  
 Move sauce to a blender, and process it until smooth.  
