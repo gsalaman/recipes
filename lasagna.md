@@ -26,6 +26,7 @@ For the cheese layers:
 * 2 eggs
 * 1/4 tsp nutmeg
 * 16 oz mozzerella cheese
+* 1 container parmesean (1 cup)
 
 And then the noodles...want 15.
 
