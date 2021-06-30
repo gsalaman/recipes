@@ -8,5 +8,5 @@
 * 1 TSP black pepper (less for a smaller bite)
 * 1/2 TSP cayenne pepper
 * 1/4 TSP kosher salt
-* 
+
 In small saucepan, simmer all ingredients for 10 min.
