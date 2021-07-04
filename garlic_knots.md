@@ -8,10 +8,10 @@ For the knots:
 * 2 TBSP oil
 
 For garlic coating:
-* 1/2 stick butter
-* 3 spoonfuls garlic
+* 1 stick butter
+* 6 spoonfuls garlic
 * 1/2 cup fresh parsley
-* 1 tsp garlic salt
+* 1.5 tsp garlic salt
 * grated parm
 
 In stand mixer, combine:
