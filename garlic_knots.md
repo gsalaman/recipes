@@ -45,7 +45,7 @@ Preheat overn to 450.
 
 Make garlic coating:
 * Mince 1/2 cup italian parsley.
-* Melt 1/2 stick butter over medium heat.  
+* Melt stick butter over medium heat.  
 * Add garlic and smmer for 1-2 minutes until fragrant.  DONT OVERCOOK!!!
 * Add parsley and garlic salt.  Taste.  May need more salt.  Remove from heat
 
