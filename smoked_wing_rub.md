@@ -7,7 +7,7 @@ For 6 lbs wings
 * 1 tsp onion powder
 * 1 tsp garlic powder
 * 2 tsp kosher salt
-* 3 tsp black pepper  (up this?)
+* 3 tsp black pepper
 * 1 tsp cayenne
 
 Use 2 tsp olive oil as binder.  Let sit in fridge for at least an hour.
