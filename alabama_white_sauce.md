@@ -1,6 +1,7 @@
 # Alabama White Sauce
+Decent, but not outstanding.  Okay with coleslaw.
 
-Mix;
+Mix:
 * 1 cup mayonaisse
 * 1/3 cup apple cider vinegar
 * 1 TBSP water
