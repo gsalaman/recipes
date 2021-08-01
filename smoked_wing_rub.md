@@ -1,4 +1,7 @@
 # Smoked Wing Rub
+
+WAAAAY too much!!!!  Go lighter next time.
+
 For 6 lbs wings
 
 * 2 TBSP Chili Powder  (I'm trying chipotle chili powder...)
