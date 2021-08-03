@@ -1,4 +1,7 @@
 # St Louis Apricot BBQ sauce
+
+This makes a big batch...I'd use the big saucepan for this.  
+
 * 1 stick butter
 * 1 jar apricot or peach jelly
 * 1/4 cup Worcheshire 
