@@ -11,4 +11,5 @@
 * 1/2 cup molasses
 * 1/2 tsp pepper (pepper to taste...tweak this)
 
-Stir and simmer in saucepan
+Stir and simmer in saucepan.  If the jam is "chunky", use an emulsion blender to make it smooth.
+
