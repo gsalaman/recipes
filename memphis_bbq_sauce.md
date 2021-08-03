@@ -1,4 +1,7 @@
 # Memphis BBQ Sauce
+
+This recipe does about half of one of the big (24oz) squeeze bottles. 
+
 * 1 cup ketchup
 * 1/2 cup white vinegar
 * 1/4 cup brown sugar
