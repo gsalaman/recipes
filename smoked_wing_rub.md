@@ -20,3 +20,13 @@ Smoke over 225-250 with pecan wood for 2 to 2.5 hrs.
 Put over direct coals to crisp...5 min a side.
 
 Let rest 10 min.
+
+## Take 2 rub:
+
+Going for less spicy...closer to what Alli uses when she roasts chicken.
+
+* 2 TBSP Paprika
+* 1 TBSP onion powder
+* 1 TBSP garlic powder
+* 1 TBSP kosher salt
+* 1 TBSP lemon pepper
