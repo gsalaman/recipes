@@ -17,7 +17,7 @@ Ingredients:
 * 1 star anise pod (found with mexican spices)
 * 2 whole cloves
 * 1/4 cup fish sauce
-* 12 oz dried rice noodles (thinner the better)
+* 12 oz dried rice noodles (1/8" or vermacelli)
 * 2 scallions
 * bean sprouts
 * cilantro
