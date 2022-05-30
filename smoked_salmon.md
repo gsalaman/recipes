@@ -3,17 +3,18 @@
 I like to use a 2.5-3 lb filet for this.
 
 Dry brine:
-1 cup brown sugar
-1/2 cup kosher salt
-1 packet fresh dill, chopped
-pepper
+* 1 cup brown sugar
+* 1/2 cup kosher salt
+* 1 packet fresh dill
+* chopped pepper
 
 Sauce:
-1 cup mayo
-1 TBSP Sriracha
-1 TBSP Worstershire
-1/2 lime's juice, fresh squeezed
-salt to taste (1/2 tsp)
+* 1 cup mayo
+* 1 TBSP Sriracha
+* 1 TBSP Worstershire
+* 1/2 lime's juice, fresh squeezed
+* 1 packet dill
+* * salt to taste (1/2 tsp)
 
 Gonna want to let the salmon brine for ~4 hrs prior to starting the smoker.
 
