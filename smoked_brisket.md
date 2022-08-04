@@ -20,3 +20,7 @@ Rub:
 * 2 tbsp paprika
 
 MAAAAYbe used 1/4 of this.  Rub as coals are going.
+
+Using Pecan wood.
+
+
