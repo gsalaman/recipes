@@ -3,8 +3,9 @@
 * 1/3 cup granulated sugaar
 * pinch salt
 * 5 eggs
-* 1 tsp Vanilla Extract.
-* 
+* 1 tsp Vanilla Extract
+* Turbinado sugar (for carmelizing)
+
 This is a "half" recipie...fills 8 smaller ramekins or 4 of my bigger ones.  I do the vanilla extract thing...I find it easier (and just as tasty) as boiling the vanilla bean.
 
 preheat oven to 300
@@ -18,7 +19,7 @@ Combine 1 cup heavy cream, 1/3 cup granulated sugar, and pinch of salt togeter i
 
 Stir in 1 more cup cream to cool down mixture.  
 
-Whisk 5 egg yolks together in bowl until uniform.  Whisk in about 1/2 cup of the cream mixture until loosened and combined.  Add 1 tsp vanilla extract.  Whisk again with another 1/2 cup.  Then do the rest.  (Strain into a 2 quart pitcher…discard solids.  Not necessary as we're not doing vanilla bean)  Pour this evenly into the ramekins.
+Whisk 5 egg yolks together in bowl until uniform.  Whisk in about 1/2 cup of the cream mixture until loosened and combined.  Add 1 tsp vanilla extract.  Whisk again with another 1/2 cup.  Then do the rest.  Pour this evenly into the ramekins.
 
 Gently place the baking dish on the oven rack.  Pour boiling water into the baking dish…don’t splash any water into the ramekins!!!  Want water at about 2/3 height of ramekins.  
 
