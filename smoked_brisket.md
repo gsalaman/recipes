@@ -23,4 +23,13 @@ MAAAAYbe used 1/4 of this.  Rub as coals are going.
 
 Using Pecan wood.
 
+## Take 2: 8/20/22  
+16# brisket trimmed to 11.25.
+
+Lighter on rub...about half way.  Didn't like that as much...going to go heavier next time.
+
+Point went buttery quickly...flat never quite got there.  Had rain which interrupted the process.  :(
+
+Good, but not as "wow" as last time.  However, did try KC bourbon sauce on it...my new fav!
+
 
