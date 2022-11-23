@@ -1,7 +1,7 @@
 # Homemade Marinara
 
 * 2 TBSP olive oil
-* * 1 TBSP unsalted butter
+* 1 TBSP unsalted butter
 * 1/2 white onion
 * Garlic
 * Anchovies - 1/2 small tin
@@ -11,6 +11,7 @@
 * 2 TSP basil
 * 1/2 TSP salt
 * 1/2 TSP sugar
+* crushed red pepper
 * 1/2 cup red wine
 
 Start this at 3:30 for a 5:30 dinner.
