@@ -1,6 +1,6 @@
 # Smoked Salmon
 
-I like to use a 2.5-3 lb filet for this.
+I like to use a 2.5-3 lb filet for this.  Did a costco one without the skin on the bottom...not as good as standard grocery store.
 
 Dry brine:
 * 1 cup brown sugar
@@ -16,7 +16,7 @@ Sauce:
 * 1 packet dill
 * * salt to taste (1/2 tsp)
 
-Gonna want to let the salmon brine for ~4 hrs prior to starting the smoker.
+Gonna want to let the salmon brine for ~4 hrs prior to starting the smoker.  NOTE:  if it doesn't have the bottom skin, it may over-salt.
 
 Remove any pin bones from the salmon...note they will get softer and reabosrb, so not critical.
 
