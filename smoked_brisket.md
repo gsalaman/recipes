@@ -32,4 +32,10 @@ Point went buttery quickly...flat never quite got there.  Had rain which interru
 
 Good, but not as "wow" as last time.  However, did try KC bourbon sauce on it...my new fav!
 
+## 5/3/23
+Did a 12# prime, trimmed down to #10.
+Didn't let it go long enough...flat didn't get buttery enough.  Day 1 wasn't awesome, but it got a lot better after day 2.
+
+Reheat notes:  oven, 325, covered in foil.  Need at least 30 min...maybe longer depending on how many pieces you are doing.  Putting a little beef broth in there helps.
+
 
