@@ -38,4 +38,8 @@ Didn't let it go long enough...flat didn't get buttery enough.  Day 1 wasn't awe
 
 Reheat notes:  oven, 325, covered in foil.  Need at least 30 min...maybe longer depending on how many pieces you are doing.  Putting a little beef broth in there helps.
 
+# 7/22/23
+Tried a different injection:  2c beef broth (from stock), 1/4 tsp rosemary, 1/4 tsp thyme.  Should make this the night before so that it simmers...
+
+
 
