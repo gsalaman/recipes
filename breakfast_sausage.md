@@ -7,3 +7,7 @@ Tried plain (blah), just salt and peper (meh), and the burnt end rub (okay).
 Did a variation that was too salty...want to try this next time:
 
 For 1# sausage:
+1/4 tsp fine salt
+1/4 tsp black pepper
+1/4 tsp white pepper
+1/2 tsp sage
