@@ -16,8 +16,23 @@ Ingredients:
 * 1/2 tsp garlic powder
 * 1/2 tsp onion powder
 * 1/4 tsp black pepper
+* 1/2 tsp sage
 
+Make broth...1 cup water, 1 tsp veggie boulion mix
 
+Let cool a little, then add TVP, chia, soy, and maple syrup.  Let sit 10 min.
+
+Add flour, paprika, fennel, garlic, onion, and black pepper.  
+
+Heat oil in skillet, fry 'em up over medium low heat...I actually did 5, and it worked pretty good.  5-ish minutes a side.
+
+So I think next time, lose the Maple...replace with soy.
+Want more pepper...got to 1/2 tsp black and 1/2 tsp white?
+May need extra salt...but do one batch first to see.  (1/2 tsp fine?)
+Also add 1/2 tsp thyme?  Maybe lose the fennel?
+
+Erika recommeded doing a fine mince and frying up some sweet onion...
+Jimmy dean copycat does 3/4 sage, 1/4 thyme, 1/4 garlic salt, 1/2 dried parsley, 1/4 tsp coriander (ground!), 1/8 tsp oregano, 1/4 tsp red pepper.
 
 ## Take 1, BLEAH!!!
 
