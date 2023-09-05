@@ -15,6 +15,8 @@
 
 Note:  no fennel or corriander.  Also ditched the onion, but uppded the pepper.
 
+MUCH closer!  Used regular soy, maybe a little salty.  Good spice mix...maybe try adding back in a little fennel or coriander.
+
 ##  Take 2: texture better
 From https://itdoesnttastelikechicken.com/easy-vegan-breakfast-sausage-patties-tvp-patties/
 I tweaked the spices a little and left off the oats...texture much better, but spice mix still not quite there yet.  Too sweet...want to go more savory and spicy next time.
