@@ -1,6 +1,21 @@
 # Vegan Breakfast Sausage
 
-##  Take 2
+## Take 3:  half batch with spices tweaked
+* 1/2 cup broth
+* 1/2 cup TVP
+* 1 TBSP chia
+* 2 TBSP soy
+* 2 TBSP flour
+* 1 tsp paprika
+* 1/4 tsp garlic
+* 1/4 tsp black pepper
+* 1/4 tsp white pepper
+* 1/4 tsp sage
+* 1/4 tsp thyme
+
+Note:  no fennel or corriander.  Also ditched the onion, but uppded the pepper.
+
+##  Take 2: texture better
 From https://itdoesnttastelikechicken.com/easy-vegan-breakfast-sausage-patties-tvp-patties/
 I tweaked the spices a little and left off the oats...texture much better, but spice mix still not quite there yet.  Too sweet...want to go more savory and spicy next time.
 
