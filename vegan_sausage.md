@@ -1,5 +1,20 @@
 # Vegan Breakfast Sausage
 
+## Take 4:  almost there!
+Full batch:
+* 1 cup veggie broth
+* 1 cup TVP
+* 2 TBSP Chia seeds
+* 2 TBSP Low sodium Soy
+* 1/4 cup flour
+* 2 tsp smoked paprika
+* 1/2 tsp ground corriander
+* 1/2 tsp garlic powder
+* 1/2 tsp white pepper
+* 1/2 tsp black pepper
+* 1/2 tsp sage
+* 1/2 tsp thyme
+
 ## Take 3:  half batch with spices tweaked
 * 1/2 cup broth
 * 1/2 cup TVP
