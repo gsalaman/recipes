@@ -1,6 +1,6 @@
 # Smoked Tofu
 
-Start with 3 packages firm tofu.  Marinate in miso overnight.
+Start with 3 packages firm tofu.  Marinate in miso overnight.  (4c water, 3 regular spoonfulls paste)
 
 Rub: 
 * 1/4 cup brown sugar
