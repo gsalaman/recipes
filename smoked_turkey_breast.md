@@ -13,7 +13,7 @@ First off, make the turkey rub.  I'm going with traditional rather than their sw
 * 2 tsp thyme
 * 1 tsp sage
 * 1 tsp celery salt
-* 1/4 tsp caynene
+* 1/2 tsp caynene
 
 Brine a breast:
 * 3c apple cider
