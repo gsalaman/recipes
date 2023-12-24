@@ -35,7 +35,7 @@ Pour 1/4 cup red win into this and whisk vigorously to incorporate.  Mixture wil
 
 Simmer for 2 minutes (or until sharp alcohol smell is gone.)
 
-Slowly pour 1/2 cup low-sodium soy sauce into mix.  whisk uuntil ully incorporated.
+Slowly pour 1/2 cup low-sodium soy sauce into mix.  whisk until fully incorporated.
 
 Add 1 TBSP Worshershire and another 1.5 Cups broth.  Boil 5 min until slightly thickened and reducd.  Season with salt and fresh pepper.
 
