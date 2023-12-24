@@ -31,7 +31,7 @@ Heat medium saucepan over medium-high heat.  When warm, add 4 TBSP of those drip
 
 When those are melted, use 2 TBSP flour to make a roux.
 
-Pour 1/4 cup red win into this and whisk vigorously to incorporate.  Mixture will likely become puurple and gooey.  
+Pour 1/4 cup red win into this and whisk vigorously to incorporate.  Mixture will likely become purple and gooey.  
 
 Simmer for 2 minutes (or until sharp alcohol smell is gone.)
 
