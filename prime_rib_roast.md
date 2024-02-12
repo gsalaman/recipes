@@ -14,6 +14,20 @@ Mix:
 * 2 tsp white wine vinegar
 * 1/4 tsp kosher salt
 
+Roast:
+* Prime Rib (duh!)
+* 1/4 cup butter (4 TBSP or half a stick)
+* 2 spoonfulls garlic
+* 1 TBSP minced rosemary...preferablly fresh
+
+Au Jus:
+* 1/4 cup red wine
+* 2 TBSP flour
+* 1/2 cup low sodium soy sauce
+* 2 cups beef broth
+* 1 TBSP worshershire
+
+
 For prime rib, preheat oven to 450.  Take out butter that morning.
 Start by seasoning all sides with salt and pepper, as you would the tenderloin roast.
 
