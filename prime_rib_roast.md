@@ -24,7 +24,7 @@ Au Jus:
 * 1/4 cup red wine
 * 2 TBSP flour
 * 1/2 cup low sodium soy sauce
-* 2 cups beef broth
+* 1.5 cups beef broth
 * 1 TBSP worshershire
 
 
