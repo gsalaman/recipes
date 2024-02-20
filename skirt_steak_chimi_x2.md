@@ -39,6 +39,8 @@ Take out steak about 30 min before grilling to bring to room temp.
 
 Preheat grill to hot.
 
+Season steak with salt and pepper.
+
 Grill for 5 min a side...want char, but medium rare.
 
 Cut against the grain.
