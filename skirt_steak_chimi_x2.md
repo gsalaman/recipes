@@ -4,14 +4,16 @@ From https://www.foodnetwork.com/recipes/bobby-flay/grilled-skirt-steak-with-gre
 
 All ingredients:
 
-* 1c flat leaf parsley
-* 1/2c mint
-* 1/2c oregano
+* 2c flat leaf parsley (1 bunch should do it)
+* 1/2c mint (1 pack)
+* 1/2c oregano + 2 TBSP oregano (2 packs)
 * 1/2c canola oil
-* 1/4c red wine vinegar
-* 1 tsp crushed red pepper
-* 8 cloves garlic
-  
+* 1/2c red wine vinegar
+* 1.5 tsp crushed red pepper
+* 12 cloves garlic
+* 1 TBSP finely chopped chipotle pepper in adobo
+* 1 TBSP smoked paprika
+
 Marinade, for 1.5 lbs skirt:
 * 1c flat leaf parsley
 * 1/2c mint
