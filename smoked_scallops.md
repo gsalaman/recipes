@@ -20,3 +20,5 @@ First take I smoked with Pecan...may want to try a stronger wood...maybe cherry?
 Want to go a little lower temp than normal...200ish.  Going for 125 degree internal...and NOT more than 135.
 
 First time took about 40 min...these go quick!
+
+And that dill sauce I do for the salmon pairs beautifully!  Bearnaise is a little too overpowering.
