@@ -1,5 +1,7 @@
 # Vegan Breakfast Sausage
 
+Light tweak:  + 1/4 salt, + 1/4 red pepper.
+
 ## Take 4:  almost there!
 Full batch:
 * 1 cup veggie broth
