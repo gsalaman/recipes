@@ -1,5 +1,20 @@
 # Smoked Wing Rub
 
+# take 3
+
+* 4 TBSP Paprika
+* 2 TBSP onion powder
+* 2 TBSP garlic powder
+* 2 TBSP kosher salt
+* 2 TBSP lemon pepper
+* 1 TBSP chipoltle chili
+
+Bind with olive oil. Let sit in fridge for at least 1 hr.
+
+Smoke with pecan for 2 to 2.5 hrs
+
+# take 1
+
 WAAAAY too much!!!!  Go lighter next time.
 
 For 6 lbs wings
@@ -25,8 +40,4 @@ Let rest 10 min.
 
 Going for less spicy...closer to what Alli uses when she roasts chicken.
 
-* 2 TBSP Paprika
-* 1 TBSP onion powder
-* 1 TBSP garlic powder
-* 1 TBSP kosher salt
-* 1 TBSP lemon pepper
+
