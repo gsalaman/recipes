@@ -41,7 +41,7 @@ Roll these out into a long rope and tie in a knot.
 
 Place on a baking sheet covered with parchment paper and cover loosely with plastic wrap.  Let rise another 30 min.
 
-Preheat overn to 450.  
+Preheat overn to 425. Original said 450, but I like the way those turn out. 
 
 Make garlic coating:
 * Mince 1/2 cup italian parsley.
@@ -49,7 +49,9 @@ Make garlic coating:
 * Add garlic and smmer for 1-2 minutes until fragrant.  DONT OVERCOOK!!!
 * Add parsley and garlic salt.  Taste.  May need more salt.  Remove from heat
 
-Bake knots for 20 min, until golden brown.
+Don't need to brush knots beforehand.
+
+Bake knots for 20 min, until golden brown.  Check at 15.  
 
 Let rest for 5 min, then brush with sauce.
 
