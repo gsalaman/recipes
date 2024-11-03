@@ -6,9 +6,9 @@ Night before, make horseradish.  Note this is different than my standard...gonna
 
 Mix:
 * 8 oz full fat sour creme
-* 1/2 cup full fat mayo  (trying real rather than my std olive oil type)
-* 1 TBSP finely chopped green onion.  (rather than my std chives)
-* 1 TBSP horseradish
+* 1/2 cup mayo  (I liked  my std olive oil type rather than full fat)
+* 1 TBSP finely chopped green onion.  (chives works well here too...and I usually do much more than 1 TBSP)
+* 1 TBSP horseradish or more to taste.
 * 1 TBSP chopped dill
 * 2 TSP dijon
 * 2 tsp white wine vinegar
