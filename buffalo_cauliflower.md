@@ -8,7 +8,8 @@ For 4:
 * 1 teaspoon garlic powder
 * 1/2 teaspoon salt
 * 1/4 teaspoon black pepper
-* 2 tablespoons butter, melted 2/3 cup Buffalo hot sauce
+* 2 tablespoons butter, melted
+* 2/3 cup Buffalo hot sauce
 
 Instructions:
 1. Preheat oven to 450 degrees, spray a large cookie sheet with cooking spray and set aside.
