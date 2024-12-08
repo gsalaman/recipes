@@ -9,15 +9,16 @@ For 4:
 * 1/2 teaspoon salt
 * 1/4 teaspoon black pepper
 * 2 tablespoons butter, melted
-* 2/3 cup Buffalo hot sauce
+* 2/3 cup Buffalo hot sauce.  I like Franks...and he's got a "wing" version that's yummy.
+* Blue Cheese crumbles (about half a package)
 
 Instructions:
-1. Preheat oven to 450 degrees, spray a large cookie sheet with cooking spray and set aside.
+1. Preheat oven to 450 degrees, spray a large cookie sheet with cooking spray and set aside.  Note...Alli likes parchment paper here instead; I do a little olive oil, and I like how that gives you crispy bits.
 2. In a large bowl whisk together flour, water, garlic powder, salt, and pepper. Add cauliflower florets and
 toss to coat. Spread evenly onto cookie sheet and place in the oven. Bake for 15 minutes, flipping once.
 Remove from the oven.
 3. In a separate bowl stir together melted butter and buffalo sauce. Add baked cauliflower and toss to coat.
-Spread evenly onto cookie sheet. Place back in the oven and bake for 25­30 minutes or until crispy,
+Spread evenly onto cookie sheet. Place back in the oven and bake for 25-30 minutes or until crispy,
 flipping once.
 4. Remove from oven and let sit 10 minutes before serving.
-5. Serve with your favorite dressing and enjoy!
+5. Serve with your favorite dressing and enjoy!  I do the blue cheese crumbles here instead of a dressing.
