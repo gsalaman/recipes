@@ -1,6 +1,32 @@
 # Vegan Breakfast Sausage
 
-Light tweak:  + 1/4 salt, + 1/4 red pepper.
+
+## Current Favorite
+* 1 cup veggie broth
+* 1 cup TVP
+* 2 TBSP Chia seeds
+* 2 TBSP Low sodium Soy
+* 1/4 cup flour
+* 2 tsp smoked paprika
+* 1 tsp fennel seeds (can do 1/2 tsp ground corriander instead)
+* 1/2 tsp garlic powder
+* 1/2 tsp white pepper
+* 1/2 tsp black pepper
+* 1/2 tsp sage
+* 1/2 tsp thyme
+* 1/4 tsp salt
+* 1/4 tsp red pepper (can omit for less spicy
+* Cooking oil
+
+Make broth...1 cup water, 1 tsp veggie boulion mix
+Let cool a little, then add TVP, chia, and soy.  Let sit 10 min.
+
+Start heating oil in skillet.  I like peanut...medium low.
+
+Add flour, paprika, fennel, garlic, white-black-red pepper, sage, thyme, and salt to tvp mix.  
+
+Form into golf-ball sized...work 'em so they're tight.  Lower into heated oil, then lightly flatten so they're ~1/3" tall.
+Adjust oil heat....want a little sizzle, but not big-time splattering.  Usually go ~5min a side...want crisp but not burned.
 
 ## Take 4:  almost there!
 Full batch:
