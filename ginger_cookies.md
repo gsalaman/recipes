@@ -7,6 +7,7 @@ Half batch (the full recipe from BH&G makes ~80, which is what I did in 1/4/25, 
   * 2 tsp ground ginger
   * 1 tsp baking soda
   * 1 tsp ground cinnamon (they call for .75, I go a bit over)
+  * 1/8 tsp salt
   * 0.5 tsp ground clove
   
   * 0.75 C or 144g vegetable shortening (crisco!)
