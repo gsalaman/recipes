@@ -39,9 +39,3 @@ To plate:  I like keeping the protein separate for the non-tofu versions  You ca
 
 A little sriracha helps kick it up if needed.
 
-If veg, do the bell peppers and peanuts first in a 12" skillet, then 
-Next, heat about 2-4 TBSP oil on medium-high heat (7).  Dice the bell peppers.
-
-Once oil is warm, put in peppers and peanuts.  Heat for about 2-3 minutes until soft.  Remove to a bowl.
-
-Next, heat/cook protien in that residual oil.  If doing chicken, you may want t
