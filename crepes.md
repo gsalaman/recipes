@@ -1,5 +1,17 @@
 # crepes
 
+Take 1:
+* 2 TBSP melted butter
+* 3/4 c whole milk
+* 1/4 c water
+* 2 eggs
+* 1 tsp vanilla
+* 3/4 c flour
+* 1 TBSP sugar
+* 1/4 tsp salt
+
+=====
+
 Multiple places for batter.
 
 (Start half julia + 1 tsp vanilla)
