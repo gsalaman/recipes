@@ -2,13 +2,15 @@
 
 Multiple places for batter.
 
+(Start half julia + 1 tsp vanilla)
+
 Original Julia:
-1 cup cold water
-1 cup cold milk
-4 eggs
-1/2 tsp salt
-1 1/2 cups flour
-4 tbsp melted butter
+* 1 cup cold water
+* 1 cup cold milk
+* 4 eggs
+* 1/2 tsp salt
+* 1 1/2 cups flour
+* 4 tbsp melted butter
 
 Serious Eats:
 2 eggs
