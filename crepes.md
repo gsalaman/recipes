@@ -28,6 +28,12 @@ Once the top looks non-liquid (about a minute?) flip.  Most folks use their hand
 
 The fun part is topping experiments...I did std maple syrup, some of the raspberry jam...Alli says sugar and cinnamon, and my mind goes to  whipped cream with either some chocolate syrup or cut up strawberries...or even creme anglaise.
 
+Lafaytte notes:  
+Want pan hot...so I did 8 to start, then down to 7  
+Make sure you don't flip too soon...they'll get into a foldy mess  
+
+Took about 45 min to do a double batch.
+
 
 =====
 
