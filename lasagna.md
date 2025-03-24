@@ -65,8 +65,6 @@ Remove from heat, and allow to cool slightly before building lasagna…so this s
 Once water is boiling, add a pinch of salt.  Add noodles to pot, and cook for 4 minutes.  You don’t want them to be done…just a little flexible.
 Use tongs to remove from water and stage on parchment paper, side by side so they don’t stick.
 
-430 waitng for water to boil, finishing sauce)
-
 NOODLES:
 Want 16 noodles.
 Bring large pot of water to rolling biol.  Set out long sheet of parchement paper (aboutt 16”) on counter.  Lightly brush with olive oil.
