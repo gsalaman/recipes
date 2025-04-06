@@ -1,4 +1,5 @@
 # Kansas City Style Bourbon BBQ sauce
+This does about half of one of the big squeeze bottles.
 
 In small saucepan, ccombine:
 * 1 cup ketcup
