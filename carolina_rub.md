@@ -1,4 +1,8 @@
 # Carolina Gold Rub
+
+Rub day of when coals started.  Bind with olive oil.
+
+
 * 1/2 cup brown sugar
 * 1/2 cup salt
 * 1/4 cup paprika
