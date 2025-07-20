@@ -26,9 +26,9 @@ Brush potatos with oil, and sprinkle with salt and pepper.  Grill until nicely m
 For dressing, whisk together 1/4 cup mayo, 2 tbsp dijon, 2 TBSP red wine vinegar, juice from lemons.  
 Then wisk in 1/4 cup olive oil.  Season with a little salt (1 tsp?), and generous amount of pepper (1-2 TBSP?)
 
-Pull potatos from Grill to platter.
-Sprinkle with paprika
-Drizzle dressing (want to make sure they're still hot soz they absorb dressing)
+Pull potatos from Grill to platter.  
+Sprinkle with paprika  
+Drizzle dressing (want to make sure they're still hot soz they absorb dressing)  
 Garnish with parsely.
 
 ## Take 1 notes:
