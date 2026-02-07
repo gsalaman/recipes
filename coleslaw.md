@@ -8,5 +8,6 @@ Whisk together and put on cabbage:
 * 1 TBSP vinegar (trying white whine)
 * 1/2 TSP ground black pepper
 * 1/4 TSP salt
+* Dill...optional.  Quarter pack for each.
 
 Use on 1 bag coleslaw.
