@@ -35,15 +35,30 @@ While sauce is simmering, make cheese filling...basically same as lasagna:
 * prolly a smidge salt & pepper?  Left it out...didn't need it.
 
 4/30/26 notes:
-Alli would have liked a little more herb in here.  Maybe some Basil?  
+Alli would have liked a little more herb in here.  Maybe some Basil?  Som.ewhere from a quarter to half cup...experiment with density
 
 Assembly:
 Want two sheets at either 6 or 7.  Trim them up first!  Keep rest of dough covered as you go.
 Use stamp to loosely mark where centers are, use ?1 TBSP? scoops filling.  Cover with other sheet.  Some do light water brush to help seal.  Some do egg wash.  Some do neither.  I'm gonna try first sheet nothing, then water if that doesn't work.
 Before you stamp, make sure you've got all the air bubbles out (they say use pinkies).  Place on sheet pan dusted with seminola, and keep covered.  (towel?)
 
-Garnish:  maybe a little extra parsely?
+4/30/26 notes:
+I rolled to 7.  Maybe go all the way to 8 next time.
+
+Can re-roll the scraps...but if they get cheese mix on them, you need to clean 'em off.
+
+DEFINITELY dust surface with seminola.
+
+So the stamp LOOKED prettier....but it was easier to assemble with doing a fold-in-half method and the roller.  Fold sheet in half to make crease, then put filling on bottom of crease.  Easier to work air bubbles out.
+
+If doing the stamp, I found it easier to work air bubbles *towards* me...lifing that as I went.
+
+Whilst Assembling, have sheet pan in freezer ready...either dusted or parchement paper.  Put the assembled ravioli there as you go.
+
+Cooking:  Salted boiling water.  Do a few at a time.  5-6 minutes...maybe go longer, as Alli didn't like the Al dente.
+
+Garnish:  maybe a little extra parsely?  Yup!
 
 
-To freeze:  place ravioi on sheet pan with parchment paper, dusted with seminola flour.  Don't bother covering...freeze until solid.  Then xfer to parchemnt lined air-tight container.
+To freeze:  place ravioi on sheet pan with parchment paper, dusted with seminola flour.  Don't bother covering...freeze until solid.  Then xfer to parchemnt lined air-tight container.  ---this worked well!!!
 
