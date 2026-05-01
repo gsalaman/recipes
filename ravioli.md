@@ -8,6 +8,9 @@ They want 300g type 00 flour with 185g eggs.  I'm going a little smaller for tak
 
 Clever Carrot does food processor to mix all that.  Gonna try it that way.
 
+4/30/26 notes:
+The 00 flour made the pasta have a little more chew.  I liked it; Alli prefers the softer.  Try just going All-purpose (like with the spag dough) next time.  I *did* like the food processor + vac seal rest thing...made the rolling out MUCH easier.  And proportions:  Doing 200g/125g yielded about 20ish ravioli...and had LOADS of left over cheese mix.  Would double the dough next time (since it's hard to cut down the cheese) and freeze the leftovers.
+
 Sauce:  basically my canneloni homemade, with some lasagna tweaks.
 * Heat 2 TBSP olive oil over medium heat
 * Mince 1/2 white onion FINE.
@@ -20,13 +23,19 @@ Sauce:  basically my canneloni homemade, with some lasagna tweaks.
 * Add 1/2 TSP salt and 1/2 TSP sugar
 * simmer for another 5 min
 
+4/30/26 notes:  
+Sauce good but not great.  Maybe more tomato-y?  Reduce it more?  Not sure what it needs.
+
 While sauce is simmering, make cheese filling...basically same as lasagna:
 * That drained ricotta.
 * 5oz fontina
 * 1/4 cup parm reginnio
 * 2 eggs
 * 1/4 tsp nutmeg
-* prolly a smidge salt & pepper?
+* prolly a smidge salt & pepper?  Left it out...didn't need it.
+
+4/30/26 notes:
+Alli would have liked a little more herb in here.  Maybe some Basil?  
 
 Assembly:
 Want two sheets at either 6 or 7.  Trim them up first!  Keep rest of dough covered as you go.
