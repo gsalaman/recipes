@@ -7,7 +7,8 @@
 * 1/2 TBSP kosher salt
 * 3 TBSP lemon pepper
 * 1/2 TBSP celery salt
-* 
+
+
 ## Take 1:
 
 * 3 TBSP Paprika
