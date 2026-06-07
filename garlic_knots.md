@@ -49,7 +49,7 @@ Make garlic coating:
 * Add garlic and smmer for 1-2 minutes until fragrant.  DONT OVERCOOK!!!
 * Add parsley and garlic salt.  Taste.  May need more salt.  Remove from heat
 
-Don't need to brush knots beforehand.
+Don't need to brush knots beforehand....but I like doing a light brush to get some butter on 'em.  Browns them up nicely.
 
 Bake knots for 20 min, until golden brown.  Check at 15.  
 
