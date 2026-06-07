@@ -51,7 +51,7 @@ Make garlic coating:
 
 Don't need to brush knots beforehand....but I like doing a light brush to get some butter on 'em.  Browns them up nicely.
 
-Bake knots for 20 min, until golden brown.  Check at 15.  
+Bake knots for 20 min, until golden brown.  Check at 15.  More often than not (knot?) they're ready at 15.
 
 Let rest for 5 min, then brush with sauce.
 
