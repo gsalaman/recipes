@@ -20,7 +20,7 @@ In stand mixer, combine:
 2.25 tsp yeast
 2 tsp salt
 
-Turn mixer on low spped, add 1 1/2 cup warm water and 2 TBSP oil.
+Turn mixer on low speed, add 1 1/2 cup warm water and 2 TBSP oil.
 Want a solid ball. 
 If too sticky, add flour, 1 tbsp at a time
 If too dry, add water, 1 tbsp at a time.
