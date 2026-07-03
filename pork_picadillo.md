@@ -1,17 +1,17 @@
 # Pork Picadillo filling and sauce:
 (Reduced from bayless filling for rellanos)
 
-Vegetable oil
-1 white onion
-1 28-oz can crushed tomatoes
-1/2 tsp cinnamon
-1/2 tsp black pepper
-1 cup chicken broth
+* Vegetable oil
+* 1 white onion
+* 1 28-oz can crushed tomatoes
+* 1/2 tsp cinnamon
+* 1/2 tsp black pepper
+* 1 cup chicken broth
 
-1/3 cup almonds
-1/3 cup raisins
-1 lb ground pork
-2 tsp cider vinegar
+* 1/3 cup almonds
+* 1/3 cup raisins
+* 1 lb ground pork
+* 2 tsp cider vinegar
 
 Heat 1.5 TBSP veggie oil in large saucepan over medium heat.
 Chop onion into 1/4” pieces.
