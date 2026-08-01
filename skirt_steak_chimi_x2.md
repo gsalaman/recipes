@@ -10,7 +10,7 @@ All ingredients:
 * 1/2c canola oil
 * 1/2c red wine vinegar
 * 1.5 tsp crushed red pepper
-* 12 cloves garlic
+* 12-20 cloves garlic
 * 1 TBSP finely chopped chipotle pepper in adobo
 * 1 TBSP smoked paprika
 
@@ -21,7 +21,7 @@ Marinade, for 1.5 lbs skirt:
 * 1/2c canola oil
 * 1/4c red wine vinegar
 * 1 tsp crushed red pepper
-* 8 cloves garlic
+* 8 cloves garlic  -- I usually go 12 here.
 
 Combine in food processor.  Marinate for 4 hrs to 24 hrs.
 
@@ -30,10 +30,10 @@ Red Chimi:
 * 1/2c extra virgin olive oil
 * 1/4c red wine vinegar
 * 2 tbsp oregano
-* 1 TBSP finely chopped chipotle pepper in adobo
+* 1 TBSP finely chopped chipotle pepper in adobo.  This is the mild version.  I'll go to 3 decent sized peppers with adobo.
 * 1 TBSP smoked paprika
 * 1/2 tsp crushed red pepper
-* 3 cloves garlic
+* 3 cloves garlic  - I usually go much heavier...6-8 here
 
 Flay did all this in a mortar and pestle, with a little salt and pepper.  I'm gonna try food processor.
 
