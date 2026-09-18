@@ -14,6 +14,8 @@ Mix:
 * 2 tsp white wine vinegar
 * 1/4 tsp kosher salt
 
+Sept 2026 note:  when using the horseradish, on a couple occasions it hasn't really been spicy enough.  I think I'm gonna try "extra hot" next time...but then be super-careful on the amount!!  One spoonfull first, then go from there.
+
 Roast:
 * Prime Rib (duh!)
 * 1/4 cup butter (4 TBSP or half a stick)
