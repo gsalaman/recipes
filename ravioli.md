@@ -4,12 +4,14 @@
 Double the pasta.  Try all purpose rather than 00.  Add basil to filling.  So....
 
 Filling:
-* 16 oz drained ricotta.  Whole milk
-* 5oz fontina
-* 1/4 cup parm reginnio
-* 2 eggs
-* 1/4 tsp nutmeg
+* 32 oz whole milk ricotta.  They want to drain; wasn't runny.
+* * 8 oz fontina   
+* 1/2 cup parm reginnio
+* 4 eggs
+* 1/2 tsp nutmeg
 * 1/3 cup minced basil
+
+Felt like this was too much...we'll see how it pairs with the dough.
 
 Dough:
 * 400 g all purpose flour  (a little more than 2 cups)
@@ -17,22 +19,11 @@ Dough:
 Mix in food processor.  Vac seal in fridge for 1 hr.
 
 Sauce:
-Try spag style:
-* Jar of favorite sauce
-* 1 lb italian sausage
-* 1/2 white onion
-* 1 green pepper
-* 1 spoonful garlic
+Try spag style, add at end:
 * 1 tbsp parsley
 * 1 tbsp oregano
 * 1 tbsp basil
 
-Start by browning the sausage.  
-Mince onion FINE.  Cook in the sausage oil with garlic.
-Add 1 oz anchovies until they've disappeared.
-Put this in saucepan with sausage.
-Then brown diced green pepper.  Add to saucepan.
-Add parsley, oregano, and basil right before serving.
 
 Roll pasta to 8.
 Fold in half, use pasta cutter.
@@ -40,6 +31,7 @@ Use 1 TBSP mix on fold.
 
 Cook in boiling salted water for 7 min.
 
+timing:  started pasta at 1:30, followed by filling.  Done at 2:20.  
 
 ## Take 1
 First:  Drain ricotta.  
