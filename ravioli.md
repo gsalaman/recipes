@@ -12,8 +12,8 @@ Filling:
 * 1/3 cup minced basil
 
 Dough:
-* 400 g all purpose flour
-* 250 g eggs (4) plus olive oil to make up the difference.
+* 400 g all purpose flour  (a little more than 2 cups)
+* 250 g eggs (4) plus olive oil to make up the difference.  4 eggs for me was right above 200...could go 5 with no oil?
 Mix in food processor.  Vac seal in fridge for 1 hr.
 
 Sauce:
