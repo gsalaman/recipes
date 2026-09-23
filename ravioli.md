@@ -3,7 +3,7 @@
 ## Take 2
 Double the pasta.  Try all purpose rather than 00.  Add basil to filling.  So....
 
-Filling:
+Filling:  THIS WAS WAAAAAY TOO MUCH!  HALVE IT for the amount of dough below.
 * 32 oz whole milk ricotta.  They want to drain; wasn't runny.
 * * 8 oz fontina   
 * 1/2 cup parm reginnio
