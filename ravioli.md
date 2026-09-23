@@ -32,6 +32,7 @@ Use 1 TBSP mix on fold.
 Cook in boiling salted water for 7 min.
 
 timing:  started pasta at 1:30, followed by filling.  Done at 2:20.  
+Started rolling at 3:30.  Assembly done at 4:20.
 
 ## Take 1
 First:  Drain ricotta.  
