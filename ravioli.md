@@ -1,5 +1,46 @@
 # Ravioli
 
+## Take 2
+Double the pasta.  Try all purpose rather than 00.  Add basil to filling.  So....
+
+Filling:
+* 16 oz drained ricotta.  Whole milk
+* 5oz fontina
+* 1/4 cup parm reginnio
+* 2 eggs
+* 1/4 tsp nutmeg
+* 1/3 cup minced basil
+
+Dough:
+* 400 g all purpose flour
+* 250 g eggs (4) plus olive oil to make up the difference.
+Mix in food processor.  Vac seal in fridge for 1 hr.
+
+Sauce:
+Try spag style:
+* Jar of favorite sauce
+* 1 lb italian sausage
+* 1/2 white onion
+* 1 green pepper
+* 1 spoonful garlic
+* 1 tbsp parsley
+* 1 tbsp oregano
+* 1 tbsp basil
+
+Start by browning the sausage.  
+Mince onion FINE.  Cook in the sausage oil with garlic.
+Add 1 oz anchovies until they've disappeared.
+Put this in saucepan with sausage.
+Then brown diced green pepper.  Add to saucepan.
+Add parsley, oregano, and basil right before serving.
+
+Roll pasta to 8.
+Fold in half, use pasta cutter.
+Use 1 TBSP mix on fold.
+
+Cook in boiling salted water for 7 min.
+
+
 ## Take 1
 First:  Drain ricotta.  
 
