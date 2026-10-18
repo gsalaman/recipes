@@ -22,6 +22,8 @@ Roast:
 * 2 spoonfulls garlic
 * 1 TBSP minced rosemary...preferablly fresh
 
+I'd actually double this to make sure you have enough for the roast.
+
 Au Jus:
 * 1/4 cup red wine
 * 2 TBSP flour
