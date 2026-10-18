@@ -38,6 +38,8 @@ Mix 1/4 cup butter, 2 spoonfulls garlic, and 1 TBSP fresh minced rosemary.  Use 
 Put roast in oven for 15 min, then lower temp to 325.
 Want to go to 115-118 from this site...most others say 120.
 
+Cook time:  conventional wisdom is 2 hrs for a 4# roast.  On 10/18/26, took 1:30 for a 4.25#.  Variable.
+
 Baste every 30 min using a brush.
 
 Let rest 20 min when done.
